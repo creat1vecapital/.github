@@ -1,0 +1,3 @@
+# :: SHIFTING THE GLOBAL CONSCIOUSNESS ::
+
+fuck it we ball
