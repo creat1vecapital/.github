@@ -1,3 +1,2 @@
 # :: SHIFTING THE GLOBAL CONSCIOUSNESS ::
-
-fuck it we ball
+- building `pipe` to reduce the friction of video editing
